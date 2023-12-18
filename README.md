@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Kahn91
 - 👀 I’m interested in crypto
-- 🌱 I’m currently learning more about crypto world, esspecial NF
+- 🌱 I’m currently hodl some pegged token 
